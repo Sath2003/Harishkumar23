@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Harishkumar23
 - 👀 I’m interested in Googling..
-- 🌱 I’m currently learning UX
 - 💞️ I’m looking to collaborate on technologies
 - 📫 How to reach me career.harishkumar@gmail.com
 
